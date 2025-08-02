@@ -7,7 +7,7 @@ Autodidata com interesse em:
 - Redes de computadores
 - Computação teórica e desenvolvimento de sistemas
 
-Estudo também matemática, filosofia e linguas.
+Estudo também matemática e filosofia.
 
 ---
 
